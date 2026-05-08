@@ -1,4 +1,4 @@
-
+ClickUp for macOS custom Macro - export to PDF and AI assistant offers the most advanced ClickUp for macOS macro, with export to PDF and AI assistant. Ideal for professionals.
 
 
 
